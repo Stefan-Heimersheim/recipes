@@ -4,7 +4,9 @@ Rezepte für leckere Kuchen und so
 ### Kuchen:
 * Mama's Kirschstreusel (WIP)
 ### Hauptgerichte:
+* Currypfanne
 * Hühnerfrikassee (WIP)
+* Pizzateig (WIP)
 ### Partystuff:
 * Kräuterbutter
 * Kräuterquark
