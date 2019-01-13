@@ -7,7 +7,7 @@
 * Hühnerbrühe
 
 ## Zubreitung & Tipps
-* Das Hähnchenfleisch (ggf. vorher abwaschen) in einem großen Topf zusammen mit Suppengemüse und Zwiebeln kochen
+* Das Hähnchenfleisch (ggf. vorher abwaschen) in einem großen Topf zusammen mit Suppengemüse und Zwiebeln kochen, auch Salz, Pfeffer und Hühnerbrühe dazugeben
 * Nach 1-2 Stunden kann man das Fleisch rausnehmen, es sollte sich leicht von den Knochen lösen
 * Mehrschwitze mit 2-3 EL Magarine und 2-3 EL Mehr machen
 * Etwa die Hälfte der Hühnerbrühe dazugeben (andere Hälfte für das nächste Mal)
