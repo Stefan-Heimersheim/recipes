@@ -5,6 +5,7 @@
 * Saure Gurken
 * Paprika
 * Apfel
+* Zwiebel
 * evt. Fleischwurst
 * Essig
 * Gewürz Nr. 4, Salz, Pfeffer
