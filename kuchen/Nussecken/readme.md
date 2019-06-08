@@ -4,7 +4,7 @@
 * 300g Mehl (flour)
 * 1 TL Backpulver (small spoon backing powder)
 * 130g Butter (butter)
-* 1-2 Eier (eggs)
+* 1-2 Eier (eggs) [Vegan alternative: 3-6 EL water + 2-4 EL Maisstärke](https://www.springlane.de/magazin/vegan-backen-ohne-ei/)
 * 1 Prise Salz (pinch of salt)
 * 100g Zucker (sugar)
 * 1 Pkg Vanillezucker (one package vanilla sugar)
@@ -15,7 +15,7 @@
 * 2 Pkg Vanillezucker (two packages vanilla sugar)
 * 400g Gemahlene Nüsse (ground nuts)
 * 4-6 EL Wasser (big spoons water)
-## Zubereitung (making? preparation?)
+## Zubereitung (preparation) (ca. 40 min)
 ### Bottom
 * Mix flour and baking powder and put in on a table, make a through in the middle
 * Put all the other dough ingridients into the through (so they don't spill all over the table)
