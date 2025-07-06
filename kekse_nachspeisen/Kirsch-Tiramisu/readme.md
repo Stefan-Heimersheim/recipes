@@ -1,3 +1,6 @@
+![image](https://github.com/user-attachments/assets/c6e977c8-9693-4aa9-8866-08e4b4628cc4)
+
+
 # Kirsch-Tiramisu
 
 ## Zutaten (besser 1/2 nehmen)
