@@ -12,7 +12,8 @@
 * 3 Pkg Vanillzucker
 * 2 Becher Kirschgrütze oder ähnlichens
 * (Weiße Schokolade)
-##Zubereitung
+
+## Zubereitung
 * Sahne mit Vanillzucker schlagen
 * Joghurt mit Mascarpone mixen
 * Sahne unterheben
