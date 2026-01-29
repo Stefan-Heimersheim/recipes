@@ -1,6 +1,6 @@
 # Refried Beans
 
-Source: [BBC Good Food, Amanda Nicolas](https://www.bbcgoodfood.com/recipes/refried-beans)
+*Source: [BBC Good Food, Amanda Nicolas](https://www.bbcgoodfood.com/recipes/refried-beans)*
 
 
 ## Ingredients
